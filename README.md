@@ -1,0 +1,2 @@
+# CMC
+My blogg page
